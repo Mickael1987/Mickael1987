@@ -29,7 +29,7 @@
 
 ## My projects
 
-![ComingSoonGIF](https://github.com/Mickael1987/MIckaelMAGNIN/assets/65314460/fb25efe8-f4ee-4826-8782-c5e1cb7e1eb6)
+COMING SOON !!
 
 
 ## My skills
